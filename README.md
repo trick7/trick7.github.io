@@ -1,0 +1,1 @@
+# trick7.github.io
